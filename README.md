@@ -1,5 +1,5 @@
 My groupmembers are:
-- XXXX
+- Christopher
 - XXXX
 - XXXX
 - XXXX
